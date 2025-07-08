@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning how to code and incorperate my hobbies into the tech world.
 - 🤔 I’m looking for help with solidifying my carrer.
 - 💬 Ask me about art, music, sports, and writing!
-- 📫 How to reach me: NoKonan@mssummer.org
+- 📫 How to reach me: lunargirl134@gmail.com (buissness email)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a small buisness owner and has published a graphic novel.🥰
